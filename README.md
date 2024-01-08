@@ -1,0 +1,1 @@
+Proficient in designing and developing impactful NGO websites using HTML and CSS. Demonstrated expertise in creating user-friendly interfaces that effectively communicate the organization's mission and engage visitors. Passionate about leveraging web technologies to support meaningful causes
